@@ -1,4 +1,4 @@
 <p align="center">   
-<p align="center"> <img src="https://media.discordapp.net/attachments/1551541264904757342/1562779338200322139/Untitled95_20261022184651.png?ex=6adb3b2d&is=6ad9e9ad&hm=21f895fb7b1a282653e8649296eab65921d787903e163108272a1044505fabc4&=&format=webp&quality=lossless" width=560>
-<p align="center"> $\color{#4E4E50}{\text{hot}}$ $\color{#5B5B5B}{\text{girl}}$ $$\color{#717171}{\text{bummer}}$$
+<p align="center"> <img src="https://images-ext-1.discordapp.net/external/iWvwxrEKwRgahtRjLOHK17sgk1vlnKuXEnBR6_LZwiU/https/i.pinimg.com/1200x/7e/3d/be/7e3dbe21dd0240f040f06c20adaa590e.jpg?format=webp" width=560>
+<p align="center"> $\color{#4E4E50}{\text{hot}}$ $\color{#5757D}{\text{it}}$ $\color{#5B5B63}{\text{was}}$ $\color{#5D5D6B}{\text{enchan}}$$\color{#61616B}{\text{ting}}$ $\color{#686875}{\text{to}}$ $$\color{#6F6F77}{\text{meet}}$ $\color{#76767C}{\text{you}}$$
 <p align="center">   
